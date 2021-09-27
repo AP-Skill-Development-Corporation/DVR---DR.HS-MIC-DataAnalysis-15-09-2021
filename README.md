@@ -9,3 +9,5 @@
 - **21-09-2021 :** [Link](https://transcripts.gotomeeting.com/#/s/2ff76686e2da370aae937e1e20330843f4816fae812f988bf5ef9639d3373747)
 - **22-09-2021 :** [Link](https://transcripts.gotomeeting.com/#/s/001274b85cdcd551df4038471600eb4d3facf9b743e154267fb52a9cb98adf6e)
 - **23-09-2021 :** [Link](https://transcripts.gotomeeting.com/#/s/c6576ebe5df6e683813bc981460372bf71bf40e17950b85534e0f5d92a17d391)
+- **24-09-2021 :** [Link](https://transcripts.gotomeeting.com/#/s/dd0e6134e49f8e2a9cb8691921b012482d702a16d0148eeaa37e5fe908b73628)
+- **25-09-2021 :** [Link](https://transcripts.gotomeeting.com/#/s/2a76e91aef405412f3bc228c44825c0e06ad3554eb09b38fa23e596a30b626c9)
